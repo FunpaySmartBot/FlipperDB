@@ -139,7 +139,7 @@ Start with the Official firmware, test, then move to a unlocked one if desired.
 
 -----
 
-## Donation Information
+## Donation Information(Support Original creator)
 
 Nothing is ever expected for the hoarding of digital files, creations I have made, or the people I may have helped.
 

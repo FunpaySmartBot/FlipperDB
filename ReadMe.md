@@ -24,7 +24,7 @@
 
 -----
 
-## Donation Information
+## Donation Information(Support Original Creator!!!)
 
 Nothing is ever expected for the hoarding of digital files, creations I have made, or the people I may have helped.
 
